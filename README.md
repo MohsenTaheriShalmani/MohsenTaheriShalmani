@@ -2,6 +2,8 @@
 
 **Ph.D. in Information Technology and Mathematics**
 
+-  **GitHub** [https://github.com/MohsenTaheriShalmani](https://github.com/MohsenTaheriShalmani)
+
 ---
 
 ### 📚 Publications & Academic Work
