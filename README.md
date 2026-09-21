@@ -1,6 +1,6 @@
 # Mohsen Taheri Shalmani
 
-**Ph.D. in Information Technology and Mathematics**
+**Ph.D. in Information Technology, Mathematics and Physics**
 
 ---
 
